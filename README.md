@@ -3,6 +3,6 @@
 ##### at AGH University of Science and Technology.
 
 #### 🎷 Love Jazz music.
-#### 🐙 Lovecraft horro series fandom.
+#### 🐙 Lovecraft horror series enthusiast.
 #### ❤️ Carl G. Jung investigation hobbyist.
 #### 📚 Richard Feynman's fan.
