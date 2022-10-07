@@ -1,6 +1,9 @@
 #### 🖐 I’m Senior Software Engineer.
-#### 🎓 Applied computer science student
+#### 🎓 Applied computer science Engineer
 ##### at AGH University of Science and Technology.
+
+#### 🎓 Data Science graduate student
+##### at Politechnika Krakowska
 
 #### 🎷 Love Jazz music.
 #### 🐙 Lovecraft horror series enthusiast.
