@@ -1,4 +1,4 @@
-##### 🖐 I’m Senior Software Engineer.
+##### 🖐 I’m Senior Software Engineer | User Interface Software Architect.
 ##### 🎓 Applied computer science Engineer
 ###### at AGH University of Science and Technology.
 
